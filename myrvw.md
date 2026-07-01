@@ -1,0 +1,2 @@
+Thank you for the thoughtful review. The recognition of the Ginnie Mae CAMO work, the Exchange 2019 to SE migration, and the mentorship and pro bono efforts means a lot.
+I've valued your guidance this half, and I'm looking forward to bringing the same focus to the Cloud engineering team. I'll keep pushing toward AI Level 3 and find ways to contribute early in the new role. Thanks again for the support.
